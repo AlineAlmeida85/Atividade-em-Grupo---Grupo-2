@@ -1,4 +1,4 @@
-# Atividade-em-Grupo---Grupo-2
+# Atividade em Grupo-2
 
 ## Integrantes do Grupo: Fran, Aline Melissa, Amanda Santos, Daylane Maria, Gabriel Henrique, Inglide, Karlessandra Lima.
 
